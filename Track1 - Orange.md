@@ -28,7 +28,7 @@ Mon carbon n’est fait que de fibre,
 
 Appelle le Special K, un céréal killer.
 
-Oui dealer, passe commande tel mac Miller. 
+Oui dealer, passe commande mac Miller. 
 
 **REFRAIN**
 
@@ -38,13 +38,13 @@ Riche en fibre, je brasse et je distribue.
 
 Mon réseau est large comme Orange.
 
-Ma force en 5G, ma fidélité celle de l’ange
+Ma force en 5G, la fidélité celle de l’ange.
 
 **COUPLET 2**
 
 Mon empreinte s’étend, je n’oublie personne. 
 
-Jte soulève à l’orange bleue tel Atlas.
+Te soulève à l’orange bleue tel Atlas.
 
 Prends l’ovomaltine, lâche le schlass.
 
@@ -54,11 +54,11 @@ Tu me crois exilé, je suis reclus Porte d’Aubervilliers.
 
 Bataille de Nuremberg, j’ai la discipline teutonne.
 
-Boucher comme dejong, j’explose des genoux et détonne.
+Boucher comme De Jong, j’explose le plexus et détonne.
 
-En première ligne façon Magnussen. Dans la mac laren, je maîtrise la haine.
+En première ligne façon Magnussen. En mac laren, je maîtrise la haine.
 
-Toujours près de l’essentiel, au chatrier en carré or. 
+Près de l’essentiel, au chatrier en carré or. 
 
 Je m’envole tel Roland Garros, et rêve de triangle d’or.
 
@@ -70,13 +70,13 @@ Riche en fibre, je brasse et je distribue.
 
 Mon réseau est large comme Orange.
 
-Ma force en 5G, ma fidélité celle de l’ange
+Ma force en 5G, la fidélité celle de l’ange.
 
 **OUTRO**
 
 Le feu est vert, l’orange noire. 
 
-Approche toi de l’essentiel. Mets les warnings. Cultive ta fibre. 
+Approche-toi de l’essentiel. Mets les warnings. Cultive la fibre. 
 
 Ne sors pas ta carte, prends le jus, d’oranges.
 
