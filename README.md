@@ -4,11 +4,11 @@ Email : 2.doux@hey.com; twitter: @ladoe_; website : 2doux.com
 
 # EP 1 : Effet-de-serre OR De La Graine à La Cendre #
 
-##Track 1 : H2O ##
-##Track 2 : Né Sans ##
-##Track 3 : Orange Pressée  ##
-##Track 4 : Kougn Aman ##
-##Track 5 : Air France ##
-##Track 6 : Mine Ou Sapin ##
-##Track 7 : Phoenix ##
-##Track 8 : Cordon Bleu ##
+## Track 1 : H2O ## ;
+## Track 2 : Né Sans ##;
+## Track 3 : Orange Pressée ##;
+## Track 4 : Kougn Aman ##;
+## Track 5 : Air France ##;
+## Track 6 : Mine Ou Sapin ##;
+## Track 7 : Phoenix ##;
+## Track 8 : Cordon Bleu ##;
