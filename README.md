@@ -2,10 +2,13 @@
 Rap FR Indé, imaginé et conçu avec tendresse par 2Doux. Partagé en open source.
 Email : 2.doux@hey.com; twitter: @ladoe_; website : 2doux.com
 
-# EP 1 : Effet-de-serre #
+# EP 1 : Effet-de-serre OR De La Graine à La Cendre #
 
-##Track 1 : Orange ##
-##Track 2 : Saucisse Purée ##
-##Track 3 : *** ##
-##Track 4 : *** ##
-
+##Track 1 : H2O ##
+##Track 2 : Né Sans ##
+##Track 3 : Orange Pressée  ##
+##Track 4 : Kougn Aman ##
+##Track 5 : Air France ##
+##Track 6 : Mine Ou Sapin ##
+##Track 7 : Phoenix ##
+##Track 8 : Cordon Bleu ##
