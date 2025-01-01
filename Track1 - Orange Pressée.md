@@ -1,6 +1,6 @@
 **ORANGE PRESSEE**
 
-Version 1.2. M.A.J le 01.01.2025 with friends
+Version 1.2 M.A.J le 01.01.2025 with friends and love.
 
 Location : 46.191111 ; -1.394463
 
