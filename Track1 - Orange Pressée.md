@@ -31,7 +31,7 @@ Carré comme Hermès, la terre est battue.
 
 Riche en fibre, brasse et distribue.
 
-Le réseau est large comme Orange.
+Mon réseau est large comme Orange.
 
 Ma force en 5G, la fidélité de l’ange.
 
@@ -65,7 +65,7 @@ Carré comme Hermès, la terre est battue.
 
 Riche en fibre, brasse et distribue.
 
-Le réseau est large comme Orange.
+Mon réseau est large comme Orange.
 
 Ma force en 5G, la fidélité de l’ange.
 
@@ -99,7 +99,7 @@ Carré comme Hermès, la terre est battue.
 
 Riche en fibre, brasse et distribue.
 
-Le réseau est large comme Orange.
+Mon réseau est large comme Orange.
 
 Ma force en 5G, la fidélité de l’ange.
 
@@ -125,7 +125,7 @@ Carré comme Hermès, la terre est battue.
 
 Riche en fibre, brasse et distribue.
 
-Le réseau est large comme Orange.
+Mon réseau est large comme Orange.
 
 Ma force en 5G, la fidélité de l’ange.
 
