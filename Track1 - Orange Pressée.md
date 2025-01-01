@@ -8,7 +8,7 @@ ________________________________________________
 
 **Couplet 1**
 
-Commence enfin, suis déter d'en finir
+J'commence enfin, suis déter d'en finir
 
 Parisien sans agir, des idées à faire fleurir. 
 
@@ -22,7 +22,7 @@ Jpousse comme un ptit babilou qut'a pas vu en trois mois.
 
 Etrange comme la mouche qui t'a piqué. 
 
-J'ai l'ambition qui mdémange, qui mdémange. 
+J'ai l'ambition qui mdémange, qui dérange. 
 ________________________________________________
 
 **Refrain**
@@ -39,7 +39,7 @@ ________________________________________________
 
 **Couplet 2**
 
-Je suis Orange, tu mouilles comme le gange
+Tout est orange, tu mouilles comme le gange
 
 Hébergeur comme Jawad, engrange.
 
