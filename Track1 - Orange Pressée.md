@@ -73,7 +73,7 @@ ________________________________________________
 
 **Couplet 3**
 
-Te soulève à l’orange bleue, comme Atlas.
+Jte soulève à l’orange bleue, comme Atlas.
 
 Prends l’ovomaltine, lâche le schlass.
 
