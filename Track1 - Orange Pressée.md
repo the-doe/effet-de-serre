@@ -6,7 +6,7 @@ Location : 46.191111 ; -1.394463
 
 ________________________________________________
 
-**COUPLET 1**
+**Couplet 1**
 
 Commence enfin, suis déter d'en finir
 
@@ -25,7 +25,7 @@ Etrange comme la mouche qui t'a piqué.
 J'ai l'ambition qui mdémange, qui mdémange. 
 ________________________________________________
 
-**REFRAIN**
+**Refrain**
 
 Carré comme Hermès, la terre est battue.
 
@@ -37,7 +37,7 @@ Ma force en 5G, la fidélité de l’ange.
 
 ________________________________________________
 
-**COUPLET 2**
+**Couplet 2**
 
 Je suis Orange, tu mouilles comme le gange
 
@@ -59,7 +59,7 @@ Prends la commande, Mac Miller.
 
 _____________________________________________
 
-**REFRAIN**
+**Refrain**
 
 Carré comme Hermès, la terre est battue.
 
@@ -71,7 +71,7 @@ Ma force en 5G, la fidélité de l’ange.
 
 ________________________________________________
 
-**COUPLET 3**
+**Couplet 3**
 
 Te soulève à l’orange bleue, comme Atlas.
 
@@ -93,7 +93,7 @@ Je m’envole à Roland Garros, et rêve de triangle d’or.
 
 _____________________________________________
 
-**REFRAIN x2**
+**Refrain x2**
 
 Carré comme Hermès, la terre est battue.
 
@@ -105,7 +105,7 @@ Ma force en 5G, la fidélité de l’ange.
 
 ________________________________________________
 
-**OUTRO**
+**Outro**
 
 Prends soin de toi, prends des risques
 
@@ -119,7 +119,7 @@ Je suis le maillon faible d’Orange, Banque.
 
 ________________________________________________
 
-**REFRAIN x3**
+**Refrain x3**
 
 Carré comme Hermès, la terre est battue.
 
