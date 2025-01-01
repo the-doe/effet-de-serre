@@ -1,4 +1,4 @@
-**ORANGE PRESSEE**
+**Orange Pressée**
 
 Version 1.2 M.A.J le 01.01.2025 with friends and love.
 
