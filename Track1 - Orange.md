@@ -1,85 +1,126 @@
-
-<aside>
-🔑 ***INTRO - Parlée avec une base mélodique faible (clavier ou xylo) - Inspi [Stupéfiant et noir](https://open.spotify.com/track/7Kb3C0NTp3Nq0uYByMLo3d?si=8cf9eacb238e4944) d’Alpha Wann***
-</aside>
-
-> *Aujourd'hui, le monde, c’est binaire. Soit c’est 0, soit c'est 1. T’as pas d’alternative. Heureusement, la société a créé des exceptions. Pour les feux de signalisation, tu as le vert et le rouge, mais pour ralentir, pour anticiper le danger, l’homme a créé le orange. Le orange, quelle formidable invention !*
-> 
-
 **COUPLET 1**
+
+Commence enfin, suis déter d'en finir
+
+Parisien sans agir, des idées à faire fleurir. 
+
+Gamin gâté loin de la rue, ce son ma grue pour jaillir. 
+
+Jveux nous réunir, ai la concorde en ligne de mir. 
+
+N'attends pas pour casser des couisses et faire des émois. 
+
+Jpousse comme un ptit babilou qut'a pas vu en trois mois. 
+
+Etrange comme la mouche qui t'a piqué. 
+
+J'ai l'ambition qui mdémange, qui mdémange. 
+________________________________________________
+
+**REFRAIN**
+
+Carré comme Hermès, la terre est battue.
+
+Riche en fibre, brasse et distribue.
+
+Le réseau est large comme Orange.
+
+Ma force en 5G, la fidélité de l’ange.
+
+________________________________________________
+
+**COUPLET 2**
 
 Je suis Orange, tu mouilles comme le gange
 
-Hébergeur, comme Jawad, j’engrange.
+Hébergeur comme Jawad, engrange.
 
-L’Orange est mécanique, le regard dérange.
+L’Orange est mécanique, le regard change.
 
 La violence illimitée, l’abonnement conseillé.
-
-Nécessaire comme la vitamine,
-
-Je t’épluche comme ma Clémentine,
 
 Apporte la couleur comme le maquillage Nyx,
 
 Emmène aux enfers tel le styx.
 
-Mon carbon n’est fait que de fibre,
+Mon carbon n’est fait, que de fibre,
 
-Appelle le Special K, un céréal killer.
+C'est du Special K, céréal killer.
 
-Oui dealer, passe commande mac Miller. 
+Prends la commande, Mac Miller. 
+
+_____________________________________________
 
 **REFRAIN**
 
 Carré comme Hermès, la terre est battue.
 
-Riche en fibre, je brasse et je distribue.
+Riche en fibre, brasse et distribue.
 
-Mon réseau est large comme Orange.
+Le réseau est large comme Orange.
 
-Ma force en 5G, la fidélité celle de l’ange.
+Ma force en 5G, la fidélité de l’ange.
 
-**COUPLET 2**
+________________________________________________
 
-Mon empreinte s’étend, je n’oublie personne. 
+**COUPLET 3**
 
-Te soulève à l’orange bleue tel Atlas.
+Te soulève à l’orange bleue, comme Atlas.
 
 Prends l’ovomaltine, lâche le schlass.
 
-Basket orange, je suis dans la neuf façon Abaoud.
-
-Tu me crois exilé, je suis reclus Porte d’Aubervilliers.
-
 Bataille de Nuremberg, j’ai la discipline teutonne.
 
-Boucher comme De Jong, j’explose le plexus et détonne.
+Boucher comme De Jong, explose les genoux et détonne.
+
+Basket orange, dans la neuf avec Abaoud,
+
+Je suis exilé, reclus Porte d’Aubervilliers.
 
 En première ligne façon Magnussen. En mac laren, je maîtrise la haine.
 
-Près de l’essentiel, au chatrier en carré or. 
+Toujours près de l’essentiel, au chatrier en carré or. 
 
-Je m’envole tel Roland Garros, et rêve de triangle d’or.
+Je m’envole à Roland Garros, et rêve de triangle d’or.
 
-**REFRAIN**
+_____________________________________________
+
+**REFRAIN x2**
 
 Carré comme Hermès, la terre est battue.
 
-Riche en fibre, je brasse et je distribue.
+Riche en fibre, brasse et distribue.
 
-Mon réseau est large comme Orange.
+Le réseau est large comme Orange.
 
-Ma force en 5G, la fidélité celle de l’ange.
+Ma force en 5G, la fidélité de l’ange.
+
+________________________________________________
 
 **OUTRO**
 
-Le feu est vert, l’orange noire. 
+Prends soin de toi, prends des risques
 
-Approche-toi de l’essentiel. Mets les warnings. Cultive la fibre. 
+Approche-toi de l’essentiel. Cultive la fibre. 
+
+Le feu est vert, accélère. 
 
 Ne sors pas ta carte, prends le jus, d’oranges.
 
 Je suis le maillon faible d’Orange, Banque.
+
+________________________________________________
+
+**REFRAIN x3**
+
+Carré comme Hermès, la terre est battue.
+
+Riche en fibre, brasse et distribue.
+
+Le réseau est large comme Orange.
+
+Ma force en 5G, la fidélité de l’ange.
+
+________________________________________________
 
 Parlé : “Nos souvenirs resteront dans nos mémoires.”
