@@ -12,7 +12,7 @@ Commence enfin, suis déter d'en finir
 
 Parisien sans agir, des idées à faire fleurir. 
 
-Gamin gâté loin de la rue, ce son ma grue pour jaillir. 
+Gamin gâté loin de la rue, ce son ma grue pour grandir. 
 
 Jveux nous réunir, ai la concorde en ligne de mir. 
 
