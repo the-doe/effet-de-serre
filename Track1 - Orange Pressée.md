@@ -85,7 +85,7 @@ Basket orange, dans la neuf avec Abaoud,
 
 Je suis exilé, reclus Porte d’Aubervilliers.
 
-En première ligne façon Magnussen. En mac laren, je maîtrise la haine.
+En première ligne façon Magnussen. Dans la ma(que) laren, je maîtrise la haine.
 
 Toujours près de l’essentiel, au chatrier en carré or. 
 
