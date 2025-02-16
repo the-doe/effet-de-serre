@@ -77,19 +77,19 @@ Jte soulève à l’orange bleue, comme Atlas.
 
 Prends l’ovomaltine, lâche le schlass.
 
-Bataille de Nuremberg, j’ai la discipline teutonne.
+Bataille de Nuremberg, la discipline teutonne.
 
 Boucher comme De Jong, explose les genoux et détonne.
 
-Basket orange, dans la neuf avec Abaoud,
+Toujours près de l’essentiel, chatrier en carré or. 
+
+Je m’envole à Roland Garros, rêve du triangle d’or.
+
+Basket orange, dans la neuf façon Abaoud,
 
 Je suis exilé, reclus Porte d’Aubervilliers.
 
-En première ligne façon Magnussen. Dans la ma(que) laren, je maîtrise la haine.
-
-Toujours près de l’essentiel, au chatrier en carré or. 
-
-Je m’envole à Roland Garros, et rêve de triangle d’or.
+P1 comme Magnussen. Dans la ma(que) laren, je maîtrise la haine.
 
 _____________________________________________
 
@@ -117,7 +117,7 @@ Le feu est vert, accélère.
 
 Ne sors pas ta carte, prends le jus, d’oranges.
 
-Je suis le maillon faible d’Orange, Banque.
+Sois le maillon faible d’Orange, Banque.
 
 ________________________________________________
 
