@@ -83,17 +83,12 @@ Boucher comme De Jong, explose les genoux et détonne.
 
 Toujours près de l’essentiel, 
 
-Le chatrier en carré or. 
+Chatrier en carré or. 
 
-Je m’envole à Roland Garros, 
+Jm’envole à Roland Garros, 
 
 Et rêve du triangle d’or.
 
-Basket orange, dans la neuf façon Abaoud,
-
-Je suis exilé, trouve moi Porte d’Aubervilliers.
-
-P1 comme Magnussen. Dans la ma(que) laren, je maîtrise la haine.
 
 _____________________________________________
 
@@ -138,3 +133,10 @@ Ma force en 5G, la fidélité de l’ange.
 ________________________________________________
 
 Parlé : “Nos souvenirs resteront dans nos mémoires.”
+
+Building zone
+Basket orange, dans la neuf façon Abaoud,
+
+Je suis exilé, trouve moi Porte d’Aubervilliers.
+
+P1 comme Magnussen. Dans la ma(que) laren, je maîtrise la haine.
