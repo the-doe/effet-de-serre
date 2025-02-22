@@ -16,7 +16,7 @@ Gamin gâté loin de la rue, ce son ma grue pour grandir.
 
 Jveux nous réunir, ai la concorde en ligne de mir. 
 
-N'attends pas pour casser des couisses et faire des émois. 
+N'attends pas pour casser des cuisses et faire des émois. 
 
 Jpousse comme un ptit babilou qut'a pas vu en trois mois. 
 
@@ -73,7 +73,7 @@ ________________________________________________
 
 **Couplet 3**
 
-Jte soulève à l’orange bleue, comme Atlas.
+Te soulève à l’orange bleue, comme Atlas.
 
 Prends l’ovomaltine, lâche le schlass.
 
@@ -81,13 +81,17 @@ Bataille de Nuremberg, la discipline teutonne.
 
 Boucher comme De Jong, explose les genoux et détonne.
 
-Toujours près de l’essentiel, chatrier en carré or. 
+Toujours près de l’essentiel, 
 
-Je m’envole à Roland Garros, rêve du triangle d’or.
+Le chatrier en carré or. 
+
+Je m’envole tel Roland Garros, 
+
+Et rêve du triangle d’or.
 
 Basket orange, dans la neuf façon Abaoud,
 
-Je suis exilé, reclus Porte d’Aubervilliers.
+Je suis exilé, trouve moi Porte d’Aubervilliers.
 
 P1 comme Magnussen. Dans la ma(que) laren, je maîtrise la haine.
 
