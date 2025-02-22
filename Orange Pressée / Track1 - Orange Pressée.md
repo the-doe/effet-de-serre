@@ -108,9 +108,7 @@ ________________________________________________
 
 Prends soin de toi, prends des risques.
 
-La terre est bleue, l'orange noire.
-
-Approche-toi de l’essentiel. Cultive la fibre. 
+La terre est bleue, l'orange noire. 
 
 Le feu est vert, accélère. 
 
