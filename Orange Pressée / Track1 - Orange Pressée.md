@@ -85,7 +85,7 @@ Toujours près de l’essentiel,
 
 Le chatrier en carré or. 
 
-Je m’envole tel Roland Garros, 
+Je m’envole à Roland Garros, 
 
 Et rêve du triangle d’or.
 
